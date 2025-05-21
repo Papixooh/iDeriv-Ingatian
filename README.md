@@ -1,1 +1,0 @@
-# iDeriv-Ingatian
